@@ -1,0 +1,1 @@
+# hatake-prog.github.io
